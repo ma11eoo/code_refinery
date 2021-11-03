@@ -12,7 +12,7 @@ and Italian as well so I cannot confirm this *cliché*.
 
 ### Food
 
-As is dislike cheese, I could technically be considered a **traitor** to all passeports I have.
+As I dislike cheese, I could technically be considered a **traitor** to all passeports I have.
 
 ### Contact
 
